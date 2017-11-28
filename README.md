@@ -1,3 +1,3 @@
 hello
 this is soda calc
-Hello Chanmin \^^/
+Hello Chanmin \^^/ㅎㅎ
